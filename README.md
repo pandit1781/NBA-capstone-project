@@ -1,1 +1,1 @@
-### NBA-capstone-project ⛹️ 📊
+### NBA-capstone-project :basketball: :basketball: :bar_chart:
